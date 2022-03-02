@@ -5,7 +5,7 @@
 ## 个人信息 
 
 * 性 别：男&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&ensp;年 龄：27  
-* 手 机：18406550510 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&ensp;  邮 箱：manlay@yeah.net    
+* 手 机：184******** &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&ensp;  邮 箱：******@yeah.net    
 * 专 业：计算机应用技术 &emsp;&emsp;&emsp;&emsp;&emsp; 
 
 ## 工作及教育经历
